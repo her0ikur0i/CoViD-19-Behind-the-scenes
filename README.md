@@ -16,6 +16,6 @@ Dr. Ichsanuddin noorsy
 3. https://youtu.be/nrvw6L6Oz6E
 
 Best caption:
-BAJ*NGAN kabeh mereka itu
+BAJ*NGAN kabeh mereka itu,
 Inilah kejamnya dunia saat ini..
 😆
